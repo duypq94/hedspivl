@@ -9,5 +9,7 @@
     
 
 リーダー : Phạm Hồng Thanh - 20122404
-| 
-Nguyễn Việt Bảo - 20102605
+
+メンバー : Đào Danh Lưu   -   20122040
+
+メンバー : Nguyễn Việt Bảo - 20102605
