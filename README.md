@@ -9,4 +9,5 @@
     
 
 リーダー : Phạm Hồng Thanh - 20122404
+| 
 Nguyễn Việt Bảo - 20102605
